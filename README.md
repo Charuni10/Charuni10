@@ -1,5 +1,3 @@
-About me
-
 
 Hii I am Charuni SA!!
 
